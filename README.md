@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Cyber Security**
 
-- 📫 How to reach me **capitalnerd2617@gmail.com**
+- 📫 How to reach me **felixlohse@proton.me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
